@@ -14,7 +14,7 @@ No matter the size of the study, our experts can take you from protocol inceptio
 
 ### Big Data Analytics
 
-Our excellent team of Subject Matter Experts will uncover an endless source of business and informational insight that will help you make smarter decisions and improve outcomes.
+Our excellent team of Subject Matter Experts will uncover an endless source of business and informational insight that will help you make smarter decisions and improve outcomes. 
 
 ### Study Conduct and Close Out
 
